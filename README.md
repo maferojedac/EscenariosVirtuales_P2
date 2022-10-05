@@ -2,4 +2,4 @@
 
 # Algunas ideas para el escenario:
 
-# https://pin.it/1K8dWQH
+# https://youtube.com/playlist?list=PLbB60bpB2bkCyRvEXZa-lYesYhiS1tjc_
